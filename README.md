@@ -4,7 +4,7 @@ DDOS ATTACK FOR BANGLADESH HACKER
 
 <div align=center>
  
-# 🔥🥷🏻 Hridoy king: Release v1.4 - Free DDoS Panel 🔥🥷🏻
+# 🔥🥷🏻 UKHAYAI SIMG MARMAking: Release v1.4 - Free DDoS Panel 🔥🥷🏻
 
 
 > Terminal only accepts ANSI color.<br>
